@@ -8,7 +8,7 @@
 ### Work Experience
 **Content Creator @ Youtube (_December 2021 - June 2023_)**
 
-![Image](/Cuplikan%20layar%202024-11-14%20140239.png)
+![Image](/assets/img/Youtube.png)
 
 - big impact project 1
 - big impact project 2
