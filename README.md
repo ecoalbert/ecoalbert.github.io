@@ -6,7 +6,7 @@
 - SMA | Methodist 3, Medan
 
 ### Work Experience
-#### Paid Commission @ From Instagram
+#### Content Creator @ Youtube
 - big impact project 1
 - big impact project 2
 
